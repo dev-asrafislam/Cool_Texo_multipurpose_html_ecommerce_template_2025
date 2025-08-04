@@ -1,0 +1,1 @@
+# Cool_Texo_multipurpose_html_ecommerce_template_2025
